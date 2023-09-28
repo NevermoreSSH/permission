@@ -1,0 +1,2 @@
+# permission
+Izin dulu om 
